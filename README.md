@@ -1,1 +1,11 @@
-# facebook.lite
+# facebook.lite 
+# NETWORK 
+# OWNER INFO
+
+```javascript
+HELLO WORLD IAM AL IBNE SADIK NICKNAME AIS IAM NOT HACKER BUT IAM A DANGER
+````
+
+
+## DOWNLOAD ALLSMS BOMBING
+<a href="">DOWNLOAD NOW</a>
